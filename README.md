@@ -1,0 +1,1 @@
+# FridayQ-A
